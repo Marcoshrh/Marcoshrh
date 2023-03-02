@@ -20,7 +20,7 @@
 - 🚀 Estudante da Unip
 - 📫 Meu email: marcoshrh@gmail.com
 
-### 📊 Metas 2022:
+### 📊 Metas 2023:
 
 - 📂 Expandir meu portfólio
 
